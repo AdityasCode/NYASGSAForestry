@@ -24,4 +24,3 @@ Answer : No, they were not aware of the term mycorrhiza and the important role p
 Question 11: Has there been any knowledge sharing/sensitization done to inform you on the need to maintain good balance on the amount of nitrogen fertilisers used?
 Answer:-  The farmers were deciding on the amount of urea fertilizer to be applied based on their individual experiences. No specific programme has been conducted to increase their awareness.  
 ******
-The video files are attached for reference as well, if required.
